@@ -5,5 +5,3 @@ Advogada | Estudante de Programação
 😃Sou advogada desde 2017 #Originalmente, sou graduada em Direito, mas devido ao avanço da tecnologia, principalmente na época da pandemia 2020, e as demandas que apareceram para mim vieram para a área de tecnologia ascenderam em mim um interesse na área e estão sendo uma grata surpresa conhecer esse novo mundo!
 
 📪Como me encontrar: mozanamontenegro@gmail.com
-
-#😆Pronome: Ela
